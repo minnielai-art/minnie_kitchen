@@ -1,1 +1,1 @@
-# minniek_itchen
+# minnie_kitchen
